@@ -1,4 +1,4 @@
-
+Experience dig deeper for brainrots like never before with dig deeper for brainrots Script instant, the #1 Script. Includes infinite resources and
 
 
 
